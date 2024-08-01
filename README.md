@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Ellyn1A
+- 👀 I’m interested in studying
+- 💻 I’m currently learning tecnologia
+- 💡 I’m looking to collaborate in studies
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I don't have one
